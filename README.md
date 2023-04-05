@@ -4,9 +4,8 @@
 
 购买地址：[从零搭建一套结构光3D重建系统 [理论+源码+实践]](https://app0s6nfqrg6303.h5.xiaoeknow.com/v1/goods/goods_detail/p_615ee615e4b0b558b93701f7?type=3)
 
-课件地址：https://pan.baidu.com/s/1UNg8FnZvibrLdW8rgDxDWQ
 
-注：联系客服索要百度提取码！课件会持续更新！
+
 
 
 
